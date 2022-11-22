@@ -10,11 +10,11 @@
 
 ### 点击以下链接进入下载页：
 
-### [yy333.me](http://yy333.vip)<br>
+### [yy333.vip](http://yy333.vip)<br>
 
 ### 备用下载页下载链接：
 
-### [yy6677.me](http://yy6677.vip)<br>
+### [yy6677.vip](http://yy6677.vip)<br>
 
 ### 中文域名：
 
@@ -23,9 +23,9 @@
 
 ### 易倍体育手机H5浏览地址：
 
-### [yy333.me](http://yy333.vip)<br>
+### [yy333.vip](http://yy333.vip)<br>
 
-### [yy6677.me](http://yy6677.vip)<br>
+### [yy6677.vip](http://yy6677.vip)<br>
 
 
 ![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/png/b.png)
