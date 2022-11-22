@@ -2,7 +2,7 @@
 
 # 易倍体育回家页
 
-![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/a.png)
+![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/png/a.png)
 
 # 易倍体育最新下载地址（2022年11月22日更新）
 
@@ -28,7 +28,7 @@
 ### [yy6677.me](http://yy6677.vip)<br>
 
 
-![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/b.png)
+![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/png/b.png)
 
 # 易倍体育回家页简介
 
@@ -42,7 +42,7 @@
 2.华为手机下载需要安装时点击右上角设置关闭资源推荐；下载如出现纯净模式提醒需关闭纯净模式<br>
 3.其它安卓手机可以进入设置——更多设置——安全——关闭未知来源即可正常下载安装<br>
 
-![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/c.png)
+![活动](https://raw.githubusercontent.com/akakaqqqq/1/main/png/c.png)
 
 ### 苹果手机出现限制或者无法安装解决办法
 
@@ -65,4 +65,4 @@
 
 ### 微信联系添加：aaaiii777999000
 ### 微信扫码：
-![微信二维码](https://raw.githubusercontent.com/akakaqqqq/1/main/w.png)
+![微信二维码](https://raw.githubusercontent.com/akakaqqqq/1/main/png/w.png)
