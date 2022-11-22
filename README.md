@@ -21,11 +21,16 @@
 ### [yy6677.me](http://yy6677.vip)<br>
 
 
+![avatar](https://raw.githubusercontent.com/akakaqqqq/1/main/2.png)
+
 # 易倍体育回家页简介
 
 ### 分享精彩体育赛事，尽在易倍体育！<br>
 ### 请收藏保存本网址：[github.com/akakaqqqq/1](https://github.com/akakaqqqq/1)<br>
 
+### 1. 代理需要的微信或者泡泡等其他联系方式 /  邀请码
+### 2.代理注册链接（没有的话我就放官网的，然后让他们用邀请码引导注册）
+### 3.其他代理需要宣传的内容，如活动等
 
 ### 安卓手机出现限制安装解决办法
 
@@ -33,6 +38,7 @@
 2.华为手机下载需要安装时点击右上角设置关闭资源推荐；下载如出现纯净模式提醒需关闭纯净模式<br>
 3.其它安卓手机可以进入设置——更多设置——安全——关闭未知来源即可正常下载安装<br>
 
+![avatar](https://raw.githubusercontent.com/akakaqqqq/1/main/3.png)
 
 ### 苹果手机出现限制或者无法安装解决办法
 
